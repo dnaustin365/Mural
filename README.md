@@ -1,2 +1,2 @@
 # Mural
-mural link in readme
+[mural link in readme](https://app.mural.co/t/danielaustinjan2024capstone1553/m/danielaustinjan2024capstone1553/1705970148224/fa9208cfb864cd7bb539397d224bd93f773dd85a?sender=uf7bb690e71aca28ad4271091)https://app.mural.co/t/danielaustinjan2024capstone1553/m/danielaustinjan2024capstone1553/1705970148224/fa9208cfb864cd7bb539397d224bd93f773dd85a?sender=uf7bb690e71aca28ad4271091
